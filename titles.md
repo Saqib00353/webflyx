@@ -1,0 +1,7 @@
+# Titles
+
+* A Rivers Runs throughs It
+* Fight Club
+* 12 Years of Slave
+* The Big Short 
+* 12 Monkey 
